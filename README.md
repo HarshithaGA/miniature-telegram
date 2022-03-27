@@ -1,1 +1,1 @@
-# miniature-telegram
+# Harshitha G A
